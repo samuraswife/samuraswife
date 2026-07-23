@@ -1,5 +1,6 @@
-<img width="400" height="200" alt="Untitled945_20260722200635" src="https://github.com/user-attachments/assets/6a15e3bb-cdfa-4be1-9691-b12daada5fc2" />
+<img width="300" height="200" alt="Untitled945_20260722200635" src="https://github.com/user-attachments/assets/6a15e3bb-cdfa-4be1-9691-b12daada5fc2" />
 
+  
    *"I wanted... to play video games... with you."*
 
 <!--
