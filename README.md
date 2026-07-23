@@ -21,7 +21,7 @@
   
   ︵ ︵ ︵ ︵ ︵ ︵ ︵ ︵ ︵ ︵ ︵ 
 
-   **Thank you for reading this! Have an amazing an lovely day!**
+   **Thank you for reading this! Have an amazing and lovely day!**
 
    ︵ ︵ ︵ ︵ ︵ ︵ ︵ ︵ ︵ ︵ ︵ 
 
