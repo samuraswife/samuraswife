@@ -1,7 +1,7 @@
 <img width="300" height="200" alt="Untitled945_20260722200635" src="https://github.com/user-attachments/assets/6a15e3bb-cdfa-4be1-9691-b12daada5fc2" />
 
   
-   *"I wanted... to play video games... with you."*
+ ︵︵  *"I wanted... to play video games... with you."*   ❤︎⁠
 
 <!--
 **samuraswife/<img width="720" height="589" alt="Untitled945_20260722200635" src="https://github.com/user-attachments/assets/8502c5ad-5079-4965-bfab-8fbf39c235fc" />
