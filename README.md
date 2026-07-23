@@ -5,12 +5,12 @@
 
  *I go by: Baku / Humin*
 
-
+︵ ︵ ︵ ︵ ︵ ︵ ︵ ︵ ︵ ︵ ︵ ︵ 
   *multishipper*
 
 
 
- ❤︎⁠
+ ︵ ︵ ︵ ︵ ︵ ︵ ︵ ︵ ︵ ︵ ︵ 
 
   **DNI**: *proshippers, darkshippers, problematic people in general, people who are very insensitive, people who overdo inappropriate jokes (as in sexual), theres more, but yk*
 
