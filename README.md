@@ -10,8 +10,11 @@
 
 
 
-  *dangan fandom pls int!*
+ ❤︎⁠
 
+  **DNI**: *proshippers, darkshippers, problematic people in general, people who are very insensitive, people who overdo inappropriate jokes (as in sexual), theres more, but yk*
+
+**INTERESTS**: *Danganronpa, Alice in Borderland, All Of Us Are Dead, Squid Game, Bad and Crazy, Jujutsu Kaisen, Avatar The Last Airbender, and more!*
   
   
   <img width="300" height="200" alt="Untitled945_20260722200610" src="https://github.com/user-attachments/assets/b46d9711-fbcd-432c-be88-835ab152bfcf" />
