@@ -17,7 +17,7 @@
 
   **DNI**: *proshippers, darkshippers, problematic people in general, people who are very insensitive, people who overdo inappropriate jokes (as in sexual), theres more, but yk*
 
-**INTERESTS**: *Danganronpa, Alice in Borderland, All Of Us Are Dead, Squid Game, Bad and Crazy, Jujutsu Kaisen, Avatar The Last Airbender, and more!*
+**INTERESTS**: *Danganronpa, Alice in Borderland, All Of Us Are Dead, Squid Game, As The Gods Will, Bad and Crazy, Jujutsu Kaisen, Avatar The Last Airbender, and more!*
   
   ︵ ︵ ︵ ︵ ︵ ︵ ︵ ︵ ︵ ︵ ︵ 
 
