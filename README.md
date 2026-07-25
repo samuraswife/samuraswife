@@ -1,7 +1,9 @@
 <img width="300" height="200" alt="0CBF0233-6415-4652-A46B-0E706B5119A3" src="https://github.com/user-attachments/assets/1ae7a888-2513-49ee-8140-4bc377636f93" />
 
-︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶
-𓏼 *I go by Baku / Humin, If you want to make a nickname for me — you'd have to be a friend / close friend.*
+wip
+
+<img width="389" height="252" alt="6862061E-FDEF-4BDA-BCAB-97D758C05D09" src="https://github.com/user-attachments/assets/4533de31-06a1-47b6-bbd6-ec2e933e3782" />
+
 
 <!--
 **samuraswife/<img width="720" height="589" alt="Untitled945_20260722200635" src="https://github.com/user-attachments/assets/8502c5ad-5079-4965-bfab-8fbf39c235fc" />
