@@ -1,6 +1,29 @@
 <img width="300" height="200" alt="0CBF0233-6415-4652-A46B-0E706B5119A3" src="https://github.com/user-attachments/assets/1ae7a888-2513-49ee-8140-4bc377636f93" />
 
-wip
+  *"Lets go... to the land of the dead, together"*   
+ 
+ ︵ ︵ ︵ ︵ ︵ ︵ ︵ ︵ ︵ ︵ ︵ ︵ 
+
+ *I love Samura! My lovely husband </3*
+
+︵ ︵ ︵ ︵ ︵ ︵ ︵ ︵ ︵ ︵ ︵ ︵ 
+
+  *multishipper*
+
+
+
+ ︵ ︵ ︵ ︵ ︵ ︵ ︵ ︵ ︵ ︵ ︵ 
+
+  **DNI**: *proshippers, darkshippers, problematic people in general, people who are very insensitive, people who overdo inappropriate jokes (as in sexual), theres more, but yk*
+
+**INTERESTS**: *Danganronpa (including fangames), Alice in Borderland, All Of Us Are Dead, Squid Game, As The Gods Will, Bad and Crazy, Jujutsu Kaisen, Avatar The Last Airbender, and more!*
+  
+  ︵ ︵ ︵ ︵ ︵ ︵ ︵ ︵ ︵ ︵ ︵ 
+
+   **Thank you for reading this! Have an amazing and lovely day!**
+
+   ︵ ︵ ︵ ︵ ︵ ︵ ︵ ︵ ︵ ︵ ︵ 
+
 
 <img width="389" height="252" alt="6862061E-FDEF-4BDA-BCAB-97D758C05D09" src="https://github.com/user-attachments/assets/4533de31-06a1-47b6-bbd6-ec2e933e3782" />
 
