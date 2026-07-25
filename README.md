@@ -1,33 +1,6 @@
-<img width="300" height="200" alt="Untitled945_20260722200635" src="https://github.com/user-attachments/assets/6a15e3bb-cdfa-4be1-9691-b12daada5fc2" />
+<img width="300" height="200" alt="0CBF0233-6415-4652-A46B-0E706B5119A3" src="https://github.com/user-attachments/assets/1ae7a888-2513-49ee-8140-4bc377636f93" />
 
-  
-  *"I wanted... to play video games... with you"*   ❤︎⁠
- 
- ︵ ︵ ︵ ︵ ︵ ︵ ︵ ︵ ︵ ︵ ︵ ︵ 
-
- *I love Samura! My lovely husband </3*
-
-︵ ︵ ︵ ︵ ︵ ︵ ︵ ︵ ︵ ︵ ︵ ︵ 
-
-  *multishipper*
-
-
-
- ︵ ︵ ︵ ︵ ︵ ︵ ︵ ︵ ︵ ︵ ︵ 
-
-  **DNI**: *proshippers, darkshippers, problematic people in general, people who are very insensitive, people who overdo inappropriate jokes (as in sexual), theres more, but yk*
-
-**INTERESTS**: *Danganronpa (including fangames), Alice in Borderland, All Of Us Are Dead, Squid Game, As The Gods Will, Bad and Crazy, Jujutsu Kaisen, Avatar The Last Airbender, and more!*
-  
-  ︵ ︵ ︵ ︵ ︵ ︵ ︵ ︵ ︵ ︵ ︵ 
-
-   **Thank you for reading this! Have an amazing and lovely day!**
-
-   ︵ ︵ ︵ ︵ ︵ ︵ ︵ ︵ ︵ ︵ ︵ 
-
-   
-  <img width="300" height="200" alt="Untitled945_20260722200610" src="https://github.com/user-attachments/assets/b46d9711-fbcd-432c-be88-835ab152bfcf" />
-
+wip
 
 <!--
 **samuraswife/<img width="720" height="589" alt="Untitled945_20260722200635" src="https://github.com/user-attachments/assets/8502c5ad-5079-4965-bfab-8fbf39c235fc" />
