@@ -16,7 +16,7 @@
 
   **DNI**: *proshippers, darkshippers, problematic people in general, MAGA, racists, people who are very insensitive, people who overdo inappropriate jokes (as in sexual), theres more, but yk*
 
-  **STRICT DNI**: *People who lack sympathy / empathy, people who make ableist jokes / sa jokes / Jeffrey Epstein jokes / any of those types, sexualizing fictional characters who are MINORS*
+  **STRICT DNI**: *People who lack sympathy / empathy, people who make ableist jokes / sa jokes / Jeffrey Epstein jokes / any of those types, sexualizing fictional characters who are MINORS, saying slurs you can't reclaim as a "joke", or your whole humor relies on saying slurs*
 
 **INTERESTS**: *Danganronpa (including fangames), Alice in Borderland, All Of Us Are Dead, Squid Game, As The Gods Will, Bad and Crazy, Jujutsu Kaisen, Avatar The Last Airbender, and more!*
   
