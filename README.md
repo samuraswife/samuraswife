@@ -1,11 +1,6 @@
-<img width="400" height="110" alt="Untitled955_20260725222528" src="https://github.com/user-attachments/assets/acd6cd63-3502-49c6-9877-8fd7ca6d08c4" />
+<img width="300" height="200" alt="0CBF0233-6415-4652-A46B-0E706B5119A3" src="https://github.com/user-attachments/assets/1ae7a888-2513-49ee-8140-4bc377636f93" />
 
-<img width="300" height="200" alt="Untitled953_20260725222025" src="https://github.com/user-attachments/assets/f596f743-a8e7-4d63-81c2-addfc066b60e" />
-
-  *ugh wip let me find a line from them*
-
-
-
+  *"Lets go... to the land of the dead, together" - Ryuji Matsuyama*   
  
  ︵ ︵ ︵ ︵ ︵ ︵ ︵ ︵ ︵ ︵ ︵ ︵ 
 
@@ -32,7 +27,7 @@
    ︵ ︵ ︵ ︵ ︵ ︵ ︵ ︵ ︵ ︵ ︵ 
 
 
-<img width="400" height="110" alt="Untitled955_20260725222604" src="https://github.com/user-attachments/assets/e6239879-847c-4954-8614-4efcd3402e6b" />
+<img width="389" height="252" alt="6862061E-FDEF-4BDA-BCAB-97D758C05D09" src="https://github.com/user-attachments/assets/4533de31-06a1-47b6-bbd6-ec2e933e3782" />
 
 
 
