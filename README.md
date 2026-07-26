@@ -1,6 +1,6 @@
 <img width="400" height="110" alt="Untitled955_20260725222528" src="https://github.com/user-attachments/assets/acd6cd63-3502-49c6-9877-8fd7ca6d08c4" />
 
-<img width="2048" height="2048" alt="Untitled953_20260725222025" src="https://github.com/user-attachments/assets/f596f743-a8e7-4d63-81c2-addfc066b60e" />
+<img width="100" height="200" alt="Untitled953_20260725222025" src="https://github.com/user-attachments/assets/f596f743-a8e7-4d63-81c2-addfc066b60e" />
 
   *ugh wip let me find a line from them*
 
