@@ -1,6 +1,6 @@
 <img width="300" height="200" alt="0CBF0233-6415-4652-A46B-0E706B5119A3" src="https://github.com/user-attachments/assets/1ae7a888-2513-49ee-8140-4bc377636f93" />
 
-  *"Lets go... to the land of the dead, together"*   
+  *"Lets go... to the land of the dead, together" - Ryuji Matsuyama*   
  
  ︵ ︵ ︵ ︵ ︵ ︵ ︵ ︵ ︵ ︵ ︵ ︵ 
 
@@ -15,6 +15,8 @@
  ︵ ︵ ︵ ︵ ︵ ︵ ︵ ︵ ︵ ︵ ︵ 
 
   **DNI**: *proshippers, darkshippers, problematic people in general, MAGA, racists, people who are very insensitive, people who overdo inappropriate jokes (as in sexual), theres more, but yk*
+
+  **STRICT DNI**: *People who lack sympathy / empathy, people who make ableist jokes / sa jokes / Jeffrey Epstein jokes / any of those types, sexualizing fictional characters who are MINORS*
 
 **INTERESTS**: *Danganronpa (including fangames), Alice in Borderland, All Of Us Are Dead, Squid Game, As The Gods Will, Bad and Crazy, Jujutsu Kaisen, Avatar The Last Airbender, and more!*
   
