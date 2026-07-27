@@ -30,7 +30,7 @@
 <img width="389" height="252" alt="6862061E-FDEF-4BDA-BCAB-97D758C05D09" src="https://github.com/user-attachments/assets/4533de31-06a1-47b6-bbd6-ec2e933e3782" />
 
 
-<img width="300" height="300" alt="Untitled953_20260727130205" src="https://github.com/user-attachments/assets/25887ab2-aeb0-4967-b0bd-474f5d3d8ac1" />
+<img width="200" height="300" alt="Untitled953_20260727130205" src="https://github.com/user-attachments/assets/25887ab2-aeb0-4967-b0bd-474f5d3d8ac1" />
 
 I test shut up
 
