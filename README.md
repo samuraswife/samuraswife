@@ -1,6 +1,11 @@
-<img width="300" height="200" alt="0CBF0233-6415-4652-A46B-0E706B5119A3" src="https://github.com/user-attachments/assets/1ae7a888-2513-49ee-8140-4bc377636f93" />
+<img width="300" height="259" alt="Untitled955_20260725222528" src="https://github.com/user-attachments/assets/5e7e7baa-8304-42f5-affa-0890bce3e313" />
 
-  *"Lets go... to the land of the dead, together" - Ryuji Matsuyama*   
+
+<img width="300" height="259" alt="Untitled953_20260727130205" src="https://github.com/user-attachments/assets/25887ab2-aeb0-4967-b0bd-474f5d3d8ac1" />
+
+
+
+  *"I'm sure someone will figure out who cursed your mom and how to lift it! We'll find them together and fight them! So please..." - Yuji Itadori*   
  
  ︵ ︵ ︵ ︵ ︵ ︵ ︵ ︵ ︵ ︵ ︵ ︵ 
 
@@ -27,12 +32,11 @@
    ︵ ︵ ︵ ︵ ︵ ︵ ︵ ︵ ︵ ︵ ︵ 
 
 
-<img width="389" height="252" alt="6862061E-FDEF-4BDA-BCAB-97D758C05D09" src="https://github.com/user-attachments/assets/4533de31-06a1-47b6-bbd6-ec2e933e3782" />
+
+<img width="300" height="259" alt="Untitled955_20260725222604" src="https://github.com/user-attachments/assets/0ad6bedd-0cb8-49d5-a08e-9a01159fb9b4" />
 
 
-<img width="300" height="259" alt="Untitled953_20260727130205" src="https://github.com/user-attachments/assets/25887ab2-aeb0-4967-b0bd-474f5d3d8ac1" />
 
-I test shut up
 
 <!--
 **samuraswife/<img width="720" height="589" alt="Untitled945_20260722200635" src="https://github.com/user-attachments/assets/8502c5ad-5079-4965-bfab-8fbf39c235fc" />
