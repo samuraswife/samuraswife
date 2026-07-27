@@ -23,6 +23,9 @@
 
   **STRICT DNI**: *People who lack sympathy / empathy, people who make ableist jokes / sa jokes / Jeffrey Epstein jokes / any of those types, sexualizing fictional characters who are MINORS, saying slurs you can't reclaim as a "joke", or your whole humor relies on saying slurs*
 
+**KINS**: *Baku / Park Hu-min, K1-B0,Ryota Mitarai, Hajime Hinata, Twilight Sparkle, Akane Owari (SO MANY DANGANRONPA KINS SHHHHHH), Usagi Yuzuha, Yoon I-sak, maybe more i forgot*
+
+
 **INTERESTS**: *Danganronpa (including fangames), Alice in Borderland, All Of Us Are Dead, Squid Game, As The Gods Will, Bad and Crazy, Jujutsu Kaisen, Avatar The Last Airbender, and more!*
   
   ︵ ︵ ︵ ︵ ︵ ︵ ︵ ︵ ︵ ︵ ︵ 
