@@ -21,7 +21,7 @@
 
   **DNI**: *proshippers, darkshippers, problematic people in general, MAGA, racists, people who are very insensitive, people who overdo inappropriate jokes (as in sexual), People who joke about my (online) name, it's repetitive and unfunny to me, if you can't respect that then just call me Humin, theres more, but yk*
 
-  **STRICT DNI**: *People who lack sympathy / empathy, people who make ableist jokes / sa jokes / Jeffrey Epstein jokes / any of those types, sexualizing fictional characters who are MINORS, saying slurs you can't reclaim as a "joke", or your whole humor relies on saying slurs*
+  **STRICT DNI**: *people who make ableist jokes / sa jokes / Jeffrey Epstein jokes / any of those types, sexualizing fictional characters who are MINORS, saying slurs you can't reclaim as a "joke", or your whole humor relies on saying slurs*
 
 **KINS**: *Baku / Park Hu-min, K1-B0, Ryota Mitarai, Hajime Hinata, Twilight Sparkle, Akane Owari, Usagi Yuzuha, Yoon I-sak, Karube Daikichi, maybe more i forgot*
 
