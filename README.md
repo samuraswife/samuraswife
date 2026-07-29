@@ -40,7 +40,7 @@
 
 
 **ASRIEL DOC / VESKAR DOC**: 
-*I did not consent for my name to be put in that document, i have nothing to do with this situation besides blocking Ezra and Vivi, the reason why i did is because i felt overwhelmed and did NOT want to be dragged into this bullshit. My mental health sucks, I can hardly take care of myself properly without guilt weighing on my shoulders. Unfollow me all you want, I don't care, but I'm not siding with anybody yet until i understand this whole situation. Don't come up to me and harass me, i want nothing to do with this. I'm on the verge of doing something to myself or taking a break from ponytown completely. I'm sorry. Vivi can call me a fake friend all she wants, but I've been through a lot.*
+*I did not consent for my name to be put in that document, i have nothing to do with this situation besides blocking Ezra and Vivi, the reason why i did is because i felt overwhelmed and did NOT want to be dragged into this bullshit. My mental health sucks, I can hardly take care of myself properly without guilt weighing on my shoulders. Unfollow me all you want, I don't care, but I'm not siding with anybody yet until i understand this whole situation. Don't come up to me and harass me, i want nothing to do with this. I'm on the verge of doing something to myself or taking a break from ponytown completely. I'm sorry. Vivi can call me a fake friend all she wants, but I've been through a lot. I know she supported me but i can't take anymore of this, i can't, i can't i really can't.
 
 
 <!--
