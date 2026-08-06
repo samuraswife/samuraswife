@@ -3,6 +3,7 @@
 
 <img width="300" height="259" alt="Untitled953_20260727130205" src="https://github.com/user-attachments/assets/25887ab2-aeb0-4967-b0bd-474f5d3d8ac1" />
 
+*@pt-walk-of-fame thank you!!*
 
 
   *"I'm sure someone will figure out who cursed your mom and how to lift it! We'll find them together and fight them! So please..." - Yuji Itadori*   
