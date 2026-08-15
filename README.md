@@ -1,4 +1,4 @@
-<img width="200" height="300" alt="Untitled981_20260815094254" src="https://github.com/user-attachments/assets/1041d666-53df-425c-96fd-08cb6d4d867a" />
+<img width="300" height="200" alt="Untitled981_20260815094254" src="https://github.com/user-attachments/assets/1041d666-53df-425c-96fd-08cb6d4d867a" />
 
 $${\color{#F3CEF3}This}$$ $${\color{#797FC8}is true...}$$
 
