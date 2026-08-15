@@ -39,7 +39,7 @@
 
 <img width="300" height="100" alt="Untitled955_20260725222604" src="https://github.com/user-attachments/assets/0ad6bedd-0cb8-49d5-a08e-9a01159fb9b4" />
 
-
+$${\color{#F3CEF3}test}$$
 <!--
 **samuraswife/<img width="720" height="589" alt="Untitled945_20260722200635" src="https://github.com/user-attachments/assets/8502c5ad-5079-4965-bfab-8fbf39c235fc" />
 samuraswife** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
