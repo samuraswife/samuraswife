@@ -2,7 +2,7 @@
 
 $${\color{#F3CEF3}This}$$ $${\color{#797FC8}is true...}$$
 
-$${\color{#80AECA}love and peace~}$$
+$${\color{#80AECA}love  and  peace~}$$
 <!--
 **samuraswife/<img width="720" height="589" alt="Untitled945_20260722200635" src="https://github.com/user-attachments/assets/8502c5ad-5079-4965-bfab-8fbf39c235fc" />
 samuraswife** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
