@@ -4,7 +4,7 @@
 <img width="300" height="300" alt="Untitled981_20260815094254" src="https://github.com/user-attachments/assets/1041d666-53df-425c-96fd-08cb6d4d867a" />
 
 $${\color{#F3CEF3}Love / and / peace}$$
-$${\color{#7CABC9}ᜊ(꒪ˊ꒳ˋ꒪)ᜊ}$$
+$${\color{#7CABC9}ෆ╹ .̮ ╹ෆ}$$
 
 <img width="300" height="83" alt="Untitled982_20260815101750" src="https://github.com/user-attachments/assets/2c06d6bb-ee64-4572-84f9-55d310ac6d2c" />
 
