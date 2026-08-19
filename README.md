@@ -6,21 +6,7 @@
 $${\color{#F3CEF3}Love / and / peace}$$
 $${\color{#7CABC9}(｡◠ ꇴ ◠｡ )}$$
 
-<details>
-<summary><b>Do Not Interact (DNI) Criteria</b></summary>
-<br>
-
-**Please do not interact If you:**
-* Say overly sexual jokes toward me, example: *"Baku, you're so (sexual compliment)"*
-* Proship or darkship, *I hope you get help though*
-* Are ableist, just why? *Dni...*
-* Racist, *DON'T even joke about it either?*
-*  Saying slurs, like... are we serious? If reclaimed, every now and then, *if its regular just dni...*
-
   
-
-</details>
-
 <img width="300" height="83" alt="Untitled982_20260815101750" src="https://github.com/user-attachments/assets/2c06d6bb-ee64-4572-84f9-55d310ac6d2c" />
 
 <!--
