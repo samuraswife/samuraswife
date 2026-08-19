@@ -10,11 +10,14 @@ $${\color{#7CABC9}(｡◠ ꇴ ◠｡ )}$$
 <summary><b>Do Not Interact (DNI) Criteria</b></summary>
 <br>
 
-**Please do not interact if you meet standard DNI criteria or if you:**
-* wip wip test test.
-* test test ok.
-* [TEST TWST TWST]
-* [TESTING]
+**Please do not interact If you:**
+* Say overly sexual jokes toward me, example: "Baku, you're so hot".
+* Proship or darkship, I hope you get help though
+* [Are ableist, just why? Dni...]
+* [Racist, DON'T even joke about it either? ]
+*  Saying slurs, like... are we serious? If reclaimed, every now and then, if its regular just dni...
+
+  
 
 </details>
 
