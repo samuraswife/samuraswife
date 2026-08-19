@@ -11,7 +11,7 @@ $${\color{#7CABC9}(｡◠ ꇴ ◠｡ )}$$
 <br>
 
 **Please do not interact If you:**
-* Say overly sexual jokes toward me, example: *"Baku, you're so (sexual compliment)".*
+* Say overly sexual jokes toward me, example: *"Baku, you're so (sexual compliment)"*
 * Proship or darkship, *I hope you get help though*
 * Are ableist, just why? *Dni...*
 * Racist, *DON'T even joke about it either?*
