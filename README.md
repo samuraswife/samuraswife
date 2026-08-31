@@ -1,4 +1,5 @@
-<img width="300" height="83" alt="Untitled982_20260831190356" src="https://github.com/user-attachments/assets/bef2b398-a0eb-4102-ac22-7116fe88f6c2" />
+
+<img width="300" height="83" alt="Untitled982_20260831190943" src="https://github.com/user-attachments/assets/8078b6c0-4776-47b1-bd47-be1b538e6de7" />
 
 
 
@@ -7,10 +8,11 @@
 
 $${\color{#8C85B8}I \ tried \ to \ kill \ myself}$$
 
-$${\color{#6E6772}But... \ Rika \ wouldn't \ let \ me}$$
+$${\color{#F6F1DC}But... \ Rika \ wouldn't \ let \ me}$$
 
-  
-<img width="300" height="83" alt="Untitled982_20260831190334" src="https://github.com/user-attachments/assets/30d6da74-5c35-4a2e-b901-6428618f6896" />
+
+<img width="300" height="83" alt="Untitled982_20260831191008" src="https://github.com/user-attachments/assets/4494d3e9-0277-4e78-9616-06ce63b4e052" />
+
 
 <!--
 **samuraswife/<img width="720" height="589" alt="Untitled945_20260722200635" src="https://github.com/user-attachments/assets/8502c5ad-5079-4965-bfab-8fbf39c235fc" />
