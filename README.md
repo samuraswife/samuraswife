@@ -7,7 +7,7 @@ $${\color{#F3CEF3}Love / and / peace}$$
 $${\color{#7CABC9}(｡◠ ꇴ ◠｡ )}$$
 
 
-
+This is normal text, but <span style="color: #ff0000;">this text should be red</span>.
   
 <img width="300" height="83" alt="Untitled982_20260815101750" src="https://github.com/user-attachments/assets/2c06d6bb-ee64-4572-84f9-55d310ac6d2c" />
 
