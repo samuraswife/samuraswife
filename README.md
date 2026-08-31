@@ -8,7 +8,7 @@
 
 $${\color{#8C85B8}I \ tried \ to \ kill \ myself}$$
 
-$${\color{#F6F1DC}But... \ Rika \ wouldn't \ let \ me}$$
+$${\color{#F6F1DC}But \ Rika \ wouldn't \ let \ me}$$
 
 
 <img width="300" height="83" alt="Untitled982_20260831191008" src="https://github.com/user-attachments/assets/4494d3e9-0277-4e78-9616-06ce63b4e052" />
