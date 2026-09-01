@@ -10,7 +10,7 @@ $${\color{#8C85B8}I \ tried \ killing \ myself}$$
 
 $${\color{#F6F1DC}But \ Rika \ wouldn't \ let \ me}$$
 
-![Profile Views](https://komarev.com/ghpvc/?username=samuraswife&color=F6F1DC)
+![Sup lovelys!](https://komarev.com/ghpvc/?username=samuraswife&color=8C85B8)
 
 <img width="300" height="83" alt="Untitled982_20260831191008" src="https://github.com/user-attachments/assets/4494d3e9-0277-4e78-9616-06ce63b4e052" />
 
