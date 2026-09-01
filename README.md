@@ -6,7 +6,7 @@
 <img width="300" height="300" alt="Untitled981_20260831185647" src="https://github.com/user-attachments/assets/af10fad0-6d32-45dd-93f3-39b3a8a1ad38" />
 
 
-$${\color{#8C85B8}I \ tried \ to \ kill \ myself}$$
+$${\color{#8C85B8}I \ tried \ killing \ myself}$$
 
 $${\color{#F6F1DC}But \ Rika \ wouldn't \ let \ me}$$
 
