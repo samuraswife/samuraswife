@@ -1,17 +1,20 @@
 
-<img width="300" height="83" alt="Untitled982_20260831190943" src="https://github.com/user-attachments/assets/8078b6c0-4776-47b1-bd47-be1b538e6de7" />
+<img width="300" height="83" alt="Untitled982_20260902192107" src="https://github.com/user-attachments/assets/12a69907-dc34-48a1-95d9-2a02d6bc4172" />
 
 
 
-<img width="300" height="300" alt="Untitled981_20260831185647" src="https://github.com/user-attachments/assets/af10fad0-6d32-45dd-93f3-39b3a8a1ad38" />
+<img width="300" height="300" alt="Untitled981_20260902191740" src="https://github.com/user-attachments/assets/f0997089-99c6-4b0b-969b-715abea7b4df" />
 
 
-$${\color{#8C85B8}I \ tried \ killing \ myself}$$
 
-$${\color{#F6F1DC}But \ Rika \ wouldn't \ let \ me}$$
+$${\color{#6674AD}Heh \ It's \ called /}$$
+
+$${\color{#9CABC9}being \ excited! \ ( ´ ▽ ` )}$$
 
 
-<img width="300" height="83" alt="Untitled982_20260831191008" src="https://github.com/user-attachments/assets/4494d3e9-0277-4e78-9616-06ce63b4e052" />
+
+<img width="300" height="83" alt="Untitled982_20260902192052" src="https://github.com/user-attachments/assets/eac2af98-8ced-423a-9db2-7390e9b53ee7" />
+
 
 
 <!--
