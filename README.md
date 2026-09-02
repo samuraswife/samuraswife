@@ -9,7 +9,7 @@
 
 $${\color{#6674AD}Heh, \ It's \ called}$$
 
-$${\color{#9CABC9}being \ excited! \ ♡}$$
+$${\color{#9CABC9}being \ excited! \ ꉂꉂ(ᵔᗜᵔ◍)}$$
 
 
 
