@@ -16,12 +16,6 @@ $${\color{#9CABC9}being \ excited! \ ⋆ °}$$
 
 <img width="300" height="83" alt="Untitled982_20260902192052" src="https://github.com/user-attachments/assets/eac2af98-8ced-423a-9db2-7390e9b53ee7" />
 
-
-<img width="736" height="416" alt="IMG_2314" src="https://github.com/user-attachments/assets/fe74f89b-06fd-4562-98dd-c5c4557ded51" />
-<img width="736" height="414" alt="IMG_1600" src="https://github.com/user-attachments/assets/4de60763-c1c7-415d-b405-2306f8bf5b97" />
-
-I need to rmk my github im so picky
-
 <!--
 **samuraswife/<img width="720" height="589" alt="Untitled945_20260722200635" src="https://github.com/user-attachments/assets/8502c5ad-5079-4965-bfab-8fbf39c235fc" />
 samuraswife** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
