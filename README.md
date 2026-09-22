@@ -18,6 +18,8 @@ $${\color{#9CABC9}being \ excited! \ ⋆ °}$$
 
 
 <img width="736" height="416" alt="IMG_2314" src="https://github.com/user-attachments/assets/fe74f89b-06fd-4562-98dd-c5c4557ded51" />
+<img width="736" height="414" alt="IMG_1600" src="https://github.com/user-attachments/assets/4de60763-c1c7-415d-b405-2306f8bf5b97" />
+
 I need to rmk my github im so picky
 
 <!--
