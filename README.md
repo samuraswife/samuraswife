@@ -16,6 +16,9 @@ $${\color{#9CABC9}being \ excited! \ ⋆ °}$$
 
 <img width="300" height="83" alt="Untitled982_20260902192052" src="https://github.com/user-attachments/assets/eac2af98-8ced-423a-9db2-7390e9b53ee7" />
 
+<img width="300" height="300" alt="Untitled1014_20260923112755" src="https://github.com/user-attachments/assets/979f3b0d-9414-455a-8768-1768ea8838c4" />
+
+cgexking how my graphic looks hold on
 <!--
 **samuraswife/<img width="720" height="589" alt="Untitled945_20260722200635" src="https://github.com/user-attachments/assets/8502c5ad-5079-4965-bfab-8fbf39c235fc" />
 samuraswife** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
