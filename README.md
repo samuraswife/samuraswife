@@ -18,6 +18,9 @@ $${\color{#9CABC9}being \ excited! \ ⋆ °}$$
 
 <img width="300" height="300" alt="Untitled1014_20260923112755" src="https://github.com/user-attachments/assets/979f3b0d-9414-455a-8768-1768ea8838c4" />
 
+<img width="129" height="18" alt="IMG_2448" src="https://github.com/user-attachments/assets/914b32e5-b125-4371-ab43-6a63629bed4b" />
+
+
 cgexking how my graphic looks hold on
 <!--
 **samuraswife/<img width="720" height="589" alt="Untitled945_20260722200635" src="https://github.com/user-attachments/assets/8502c5ad-5079-4965-bfab-8fbf39c235fc" />
