@@ -25,11 +25,11 @@ wtv a test:
 
 $${\color{#848293}⋆·˚ ༘ *}$$
 
-$${\color{#E1E1C0}Tell \ me \ I'm \ good,}$$
+$${\color{#FEFAF0}Tell \ me \ I'm \ good,}$$
 
-$${\color{#FEFAF0}I \ know \ I'm \ bad}$$
+$${\color{#ADC6AD}I \ know \ I'm \ bad}$$
 
-$${\color{#745E89}⋆·˚ ༘ *}$$
+$${\color{#848293}⋆·˚ ༘ *}$$
 
 <img width="300" height="83" alt="Untitled1018_20260928163620" src="https://github.com/user-attachments/assets/7d37e5a2-b4e9-48f1-9a00-a36bef63f976" />
 
