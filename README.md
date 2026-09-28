@@ -25,13 +25,10 @@ wtv a test:
 
 <img width="640" height="40" alt="IMG_2668" src="https://github.com/user-attachments/assets/32d9429e-329f-43b4-96bd-ab9b8f902a86" />
 
-$${\color{#848293}⋆·˚ ༘ *}$$
 
-$${\color{#FFFCF7}Tell \ me \ I'm \ good,}$$
+$${\color{#FFFFFF}Tell \ me \ I'm \ good,}$$
 
-$${\color{#BEE3C8}I \ know \ i'm \ bad}$$
-
-$${\color{#848293}⋆·˚ ༘ *}$$
+$${\color{#E6F8EB}I \ know \ i'm \ bad}$$
 
 <img width="640" height="40" alt="IMG_2668" src="https://github.com/user-attachments/assets/32d9429e-329f-43b4-96bd-ab9b8f902a86" />
 
