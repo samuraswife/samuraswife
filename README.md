@@ -16,23 +16,6 @@ $${\color{#9CABC9}being \ excited! \ ⋆ °}$$
 
 <img width="300" height="83" alt="Untitled982_20260902192052" src="https://github.com/user-attachments/assets/eac2af98-8ced-423a-9db2-7390e9b53ee7" />
 
-wtv a test:
-
-<img width="300" height="83" alt="Untitled1018_20260928163616" src="https://github.com/user-attachments/assets/03bfaecd-0d77-4b5d-ad75-847ffeec0e60" />
-
-<img width="300" height="300" alt="Untitled1017_20260928115808" src="https://github.com/user-attachments/assets/18b6e67e-92e5-4ce6-96ca-49a4c825e456" />
-
-
-<img width="640" height="40" alt="IMG_2668" src="https://github.com/user-attachments/assets/32d9429e-329f-43b4-96bd-ab9b8f902a86" />
-
-
-$${\color{#FFFFFF}Tell \ me \ I'm \ good,}$$
-
-$${\color{#E6F8EB}I \ know \ i'm \ bad}$$
-
-<img width="640" height="40" alt="IMG_2668" src="https://github.com/user-attachments/assets/32d9429e-329f-43b4-96bd-ab9b8f902a86" />
-
-<img width="300" height="83" alt="Untitled1018_20260928163620" src="https://github.com/user-attachments/assets/7d37e5a2-b4e9-48f1-9a00-a36bef63f976" />
 
 <!--
 **samuraswife/<img width="720" height="589" alt="Untitled945_20260722200635" src="https://github.com/user-attachments/assets/8502c5ad-5079-4965-bfab-8fbf39c235fc" />
