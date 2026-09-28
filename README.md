@@ -31,7 +31,7 @@ $${\color{#DFE6C7}I \ know \ i'm \ bad}$$
 
 $${\color{#848293}⋆·˚ ༘ *}$$
 
-<img width="129" height="18" alt="IMG_2448" src="https://github.com/user-attachments/assets/ecdaf51a-aea9-4ee1-b2ce-48fbb1690d43" />
+  <img width="100" height="18" alt="IMG_2448" src="https://github.com/user-attachments/assets/ecdaf51a-aea9-4ee1-b2ce-48fbb1690d43" />
 
 
 <img width="300" height="83" alt="Untitled1018_20260928163620" src="https://github.com/user-attachments/assets/7d37e5a2-b4e9-48f1-9a00-a36bef63f976" />
