@@ -22,9 +22,14 @@ wtv a test:
 
 <img width="300" height="300" alt="Untitled1017_20260928115808" src="https://github.com/user-attachments/assets/18b6e67e-92e5-4ce6-96ca-49a4c825e456" />
 
+
+$${\color{#848293}⋆·˚ ༘ *}$$
+
 $${\color{#E1E1C0}Tell \ me \ I'm \ good,}$$
 
 $${\color{#FEFAF0}I \ know \ I'm \ bad}$$
+
+$${\color{#745E89}⋆·˚ ༘ *}$$
 
 <img width="300" height="83" alt="Untitled1018_20260928163620" src="https://github.com/user-attachments/assets/7d37e5a2-b4e9-48f1-9a00-a36bef63f976" />
 
