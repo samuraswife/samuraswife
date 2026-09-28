@@ -23,6 +23,8 @@ wtv a test:
 <img width="300" height="300" alt="Untitled1017_20260928115808" src="https://github.com/user-attachments/assets/18b6e67e-92e5-4ce6-96ca-49a4c825e456" />
 
 
+<img width="640" height="40" alt="IMG_2668" src="https://github.com/user-attachments/assets/32d9429e-329f-43b4-96bd-ab9b8f902a86" />
+
 $${\color{#848293}⋆·˚ ༘ *}$$
 
 $${\color{#FFFCF7}Tell \ me \ I'm \ good,}$$
