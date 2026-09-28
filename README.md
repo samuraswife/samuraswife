@@ -25,9 +25,9 @@ wtv a test:
 
 $${\color{#848293}⋆·˚ ༘ *}$$
 
-$${\color{#FEFAF0}Tell \ me \ I'm \ good,}$$
+$${\color{#FFFCF7}Tell \ me \ I'm \ good,}$$
 
-$${\color{#ADC6AD}I \ know \ I'm \ bad}$$
+$${\color{#E5E6C7}I \ know \ i'm \ bad}$$
 
 $${\color{#848293}⋆·˚ ༘ *}$$
 
