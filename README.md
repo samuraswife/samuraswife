@@ -29,7 +29,7 @@ $${\color{#848293}⋆·˚ ༘ *}$$
 
 $${\color{#FFFCF7}Tell \ me \ I'm \ good,}$$
 
-$${\color{#DFE6C7}I \ know \ i'm \ bad}$$
+$${\color{#BEE3C8}I \ know \ i'm \ bad}$$
 
 $${\color{#848293}⋆·˚ ༘ *}$$
 
