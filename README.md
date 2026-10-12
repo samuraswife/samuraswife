@@ -1,6 +1,5 @@
-<img width="736" height="414" alt="IMG_2137" src="https://github.com/user-attachments/assets/92de09ba-ced5-4a2c-af6b-09a16240d47f" />
-FUCK I NEED TO RMK GITHUB 
-Hi i might make it Gaku themed
+<img width="498" height="343" alt="2E3237D8-7E70-437F-A222-60B4B0014EC6" src="https://github.com/user-attachments/assets/62e214ac-61f6-4d6c-990e-3dfd00c9db7a" />
+So gay... Ok I remake github soon
 
 
 
