@@ -1,6 +1,6 @@
 <img width="736" height="414" alt="IMG_2137" src="https://github.com/user-attachments/assets/92de09ba-ced5-4a2c-af6b-09a16240d47f" />
 FUCK I NEED TO RMK GITHUB
-
+hiii~ im Gaku no1 fan!!! eheh GakuBaku -_-
 
 
 
