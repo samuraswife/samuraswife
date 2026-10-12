@@ -1,20 +1,6 @@
+<img width="736" height="414" alt="IMG_2137" src="https://github.com/user-attachments/assets/92de09ba-ced5-4a2c-af6b-09a16240d47f" />
+FUCK I NEED TO RMK GITHUB
 
-<img width="300" height="83" alt="Untitled1018_20260928163616" src="https://github.com/user-attachments/assets/03bfaecd-0d77-4b5d-ad75-847ffeec0e60" />
-
-
-
-<img width="300" height="300" alt="Untitled1017_20260928115808" src="https://github.com/user-attachments/assets/18b6e67e-92e5-4ce6-96ca-49a4c825e456" />
-
-
-
-
-$${\color{#F5FFE2}Tell \ me \ I'm \ good}$$
-
-$${\color{#FFFFFF}I \ know \ I'm \ bad}$$
-
-
-
-<img width="300" height="83" alt="Untitled1018_20260928163620" src="https://github.com/user-attachments/assets/facdb56f-d7a1-45a2-930d-49e8e625f09e" />
 
 
 
