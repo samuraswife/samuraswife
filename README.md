@@ -1,5 +1,6 @@
-<img width="498" height="343" alt="2E3237D8-7E70-437F-A222-60B4B0014EC6" src="https://github.com/user-attachments/assets/62e214ac-61f6-4d6c-990e-3dfd00c9db7a" />
-So gay... Ok I remake github soon
+<img width="498" height="281" alt="897C5C42-8F2D-4209-9BDF-0298193C203F" src="https://github.com/user-attachments/assets/0dcbde13-664f-4623-a953-d8d54b9612e2" />
+
+Me: is crying because I need to remake Github lol
 
 
 
