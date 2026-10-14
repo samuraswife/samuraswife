@@ -1,4 +1,4 @@
-![](https://komarev.com)
+<img src="https://komarev.com" alt="cuties" />
 
 <img width="498" height="281" alt="897C5C42-8F2D-4209-9BDF-0298193C203F" src="https://github.com/user-attachments/assets/0dcbde13-664f-4623-a953-d8d54b9612e2" />
 
