@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=samuraswife)
+![](https://komarev.com/ghpvc/?username=YOUR-GITHUB-USERNAME)
 <img width="498" height="281" alt="897C5C42-8F2D-4209-9BDF-0298193C203F" src="https://github.com/user-attachments/assets/0dcbde13-664f-4623-a953-d8d54b9612e2" />
 
 Me: is crying because I need to remake Github lol
