@@ -1,7 +1,5 @@
-
-<img width="498" height="281" alt="897C5C42-8F2D-4209-9BDF-0298193C203F" src="https://github.com/user-attachments/assets/0dcbde13-664f-4623-a953-d8d54b9612e2" />
-
-Me: is crying because I need to remake Github lol
+<img width="736" height="414" alt="IMG_3185" src="https://github.com/user-attachments/assets/91a3e9e0-106c-41b9-b6d0-a52907f72613" />
+Me: is mad because I Need to remake Github lol
 
 
 
