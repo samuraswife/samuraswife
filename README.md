@@ -1,5 +1,8 @@
-<img width="736" height="414" alt="IMG_3185" src="https://github.com/user-attachments/assets/91a3e9e0-106c-41b9-b6d0-a52907f72613" />
-Me: is mad beCauz I Need to remake Readme lol
+<img width="498" height="281" alt="37445AD0-F4EB-4665-BF6F-ADE73F6F8A4A" src="https://github.com/user-attachments/assets/eacbcd58-9451-43ee-8873-5d69763c26d3" />
+
+remaking ReadMe... 
+
+this profile is under construction ^_^
 
 
 
