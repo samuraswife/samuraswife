@@ -1,9 +1,6 @@
 <img width="498" height="281" alt="53EBB382-0F5B-465B-B44B-99793539DF19" src="https://github.com/user-attachments/assets/23d8046f-71d3-417e-9f92-f7b1a7a63e89" />
 
-remaking ReadMe... 
-
-this profile is under construction ^_^
-
+ᜊ꒦ິ^꒦ິᜊ expect this readme to be remade soon! 
 
 
 <!--
