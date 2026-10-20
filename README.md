@@ -1,6 +1,6 @@
 <img width="498" height="281" alt="53EBB382-0F5B-465B-B44B-99793539DF19" src="https://github.com/user-attachments/assets/23d8046f-71d3-417e-9f92-f7b1a7a63e89" />
 
-Me: is a useless miwa
+Me: is a useless miwa dat remake readme soon
 
 
 <!--
