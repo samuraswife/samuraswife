@@ -13,6 +13,12 @@ $${\color{#F6F1DC}Did \ she \ just \ say \ "d'oh"?}$$
 
 <img width="300" height="83" alt="Untitled982_20260831191008" src="https://github.com/user-attachments/assets/4494d3e9-0277-4e78-9616-06ce63b4e052" />
 
+<img width="300" height="83" alt="Untitled1018_20260928163616" src="https://github.com/user-attachments/assets/03bfaecd-0d77-4b5d-ad75-847ffeec0e60" />
+
+<img width="300" height="300" alt="Untitled1017_20260928115808" src="https://github.com/user-attachments/assets/18b6e67e-92e5-4ce6-96ca-49a4c825e456" />
+
+
+<img width="640" height="40" alt="IMG_2668" src="https://github.com/user-attachments/assets/32d9429e-329f-43b4-96bd-ab9b8f902a86" />
 
 <!--
 **samuraswife/<img width="720" height="589" alt="Untitled945_20260722200635" src="https://github.com/user-attachments/assets/8502c5ad-5079-4965-bfab-8fbf39c235fc" />
