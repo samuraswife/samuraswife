@@ -1,8 +1,8 @@
-<img width="634" height="262" alt="68C1978C-7C97-4D4B-8B43-8CB3FF94BF09" src="https://github.com/user-attachments/assets/50815cbe-8548-4b44-ac55-2b84ca9a09f1" />
+<img width="634" height="262" alt="68C1978C-7C97-4D4B-8B43-8CB3FF94BF09" src="https://github.com/user-attachments/assets/6ade7a04-d7d2-493f-80fd-e5dbbdad889e" />
 
-Don't be rude. 
+I'll probably rmk soon, be patient. 
 
-Our love is pure. 
+
 
 
 <!--
