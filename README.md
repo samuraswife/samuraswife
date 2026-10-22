@@ -1,6 +1,3 @@
-<img width="634" height="262" alt="68C1978C-7C97-4D4B-8B43-8CB3FF94BF09" src="https://github.com/user-attachments/assets/6ade7a04-d7d2-493f-80fd-e5dbbdad889e" />
-
-I'll probably rmk soon, be patient. 
 
 <img width="300" height="83" alt="Untitled982_20260831190943" src="https://github.com/user-attachments/assets/8078b6c0-4776-47b1-bd47-be1b538e6de7" />
 
