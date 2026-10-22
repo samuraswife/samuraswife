@@ -2,7 +2,19 @@
 
 I'll probably rmk soon, be patient. 
 
+<img width="300" height="83" alt="Untitled982_20260831190943" src="https://github.com/user-attachments/assets/8078b6c0-4776-47b1-bd47-be1b538e6de7" />
 
+
+
+<img width="300" height="300" alt="Untitled981_20260831185647" src="https://github.com/user-attachments/assets/af10fad0-6d32-45dd-93f3-39b3a8a1ad38" />
+
+
+$${\color{#8C85B8}Aw, \ d'oh!}$$
+
+$${\color{#F6F1DC}Did \ she \ just \ say \ "d'oh"?}$$
+
+
+<img width="300" height="83" alt="Untitled982_20260831191008" src="https://github.com/user-attachments/assets/4494d3e9-0277-4e78-9616-06ce63b4e052" />
 
 
 <!--
