@@ -1,6 +1,8 @@
-<img width="498" height="281" alt="53EBB382-0F5B-465B-B44B-99793539DF19" src="https://github.com/user-attachments/assets/23d8046f-71d3-417e-9f92-f7b1a7a63e89" />
+<img width="634" height="262" alt="68C1978C-7C97-4D4B-8B43-8CB3FF94BF09" src="https://github.com/user-attachments/assets/50815cbe-8548-4b44-ac55-2b84ca9a09f1" />
 
-Me: is a useless miwa dat remake readme soon
+Don't be rude. 
+
+Our love is pure. 
 
 
 <!--
