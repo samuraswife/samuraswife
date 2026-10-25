@@ -1,6 +1,5 @@
 <img width="2048" height="2048" alt="Untitled1045_20261024165922" src="https://github.com/user-attachments/assets/6171087b-4eb5-4623-b1be-0dcfc7692825" />
 
-![Profile Views](https:// komarev . com /ghpvc/?username=sanuraswife&label=Stargazes%20▼・ᴥ・▼&color=F8F1F5)
 
 
 <!--
