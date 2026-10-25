@@ -1,6 +1,6 @@
 <img width="2048" height="2048" alt="Untitled1045_20261024165922" src="https://github.com/user-attachments/assets/6171087b-4eb5-4623-b1be-0dcfc7692825" />
 
-
+![Profile Views](https://komarev.com+▼・ᴥ・▼&color=F8F1F5)
 
 <!--
 **samuraswife/<img width="720" height="589" alt="Untitled945_20260722200635" src="https://github.com/user-attachments/assets/8502c5ad-5079-4965-bfab-8fbf39c235fc" />
