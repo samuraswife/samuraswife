@@ -1,4 +1,8 @@
 <img width="200" height="500" alt="IMG_4362" src="https://github.com/user-attachments/assets/cad3facf-1b37-47cd-a749-7286aa2c2f08" />
+
+<img width="333" height="50" alt="IMG_4361" src="https://github.com/user-attachments/assets/498abb80-c8f3-480a-9ffc-c86ced93f17c" />
+
+
 wudingacc on X okkk
 
 $${\color{#FFFFFF}hi \ hi \ hi \ wip \ btw}$$
