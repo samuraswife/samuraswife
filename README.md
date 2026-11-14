@@ -1,4 +1,6 @@
-<img width="2048" height="2048" alt="Untitled1045_20261024165922" src="https://github.com/user-attachments/assets/6171087b-4eb5-4623-b1be-0dcfc7692825" />
+<img width="736" height="817" alt="IMG_4362" src="https://github.com/user-attachments/assets/cad3facf-1b37-47cd-a749-7286aa2c2f08" />
+wudingacc on X
+
 
 <!--
 **samuraswife/<img width="720" height="589" alt="Untitled945_20260722200635" src="https://github.com/user-attachments/assets/8502c5ad-5079-4965-bfab-8fbf39c235fc" />
