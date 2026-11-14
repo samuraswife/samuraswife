@@ -1,6 +1,7 @@
 <img width="200" height="500" alt="IMG_4362" src="https://github.com/user-attachments/assets/cad3facf-1b37-47cd-a749-7286aa2c2f08" />
 wudingacc on X okkk
 
+$${\color{#FFFFFF}hi \ hi \ hi \ wip \ btw}$$
 
 <!--
 **samuraswife/<img width="720" height="589" alt="Untitled945_20260722200635" src="https://github.com/user-attachments/assets/8502c5ad-5079-4965-bfab-8fbf39c235fc" />
