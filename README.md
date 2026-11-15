@@ -3,7 +3,8 @@ wip wip wip
 
 $${\color{#FFFFFF}hi \ hi \ hi \ wip \ btw}$$
 
-<img width="200" height="200" alt="2C501852-65CD-4757-BC20-5D6DD445C2AC" src="https://github.com/user-attachments/assets/4a99be11-e605-4640-bca7-f134a92acd05" />
+<img width="200" height="200" alt="2C501852-65CD-4757-BC20-5D6DD445C2AC" src="https://github.com/user-attachments/assets/4a99be11-e605-4640-bca7-f134a92acd05" /> $${\color{#FFFFFF}txt \ txt \ txt \ txt \ txt}$$
+
 
 <!--
 **samuraswife/<img width="720" height="589" alt="Untitled945_20260722200635" src="https://github.com/user-attachments/assets/8502c5ad-5079-4965-bfab-8fbf39c235fc" />
